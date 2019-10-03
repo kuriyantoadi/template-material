@@ -1,0 +1,1 @@
+saya data barang masuk
